@@ -39,6 +39,6 @@ The latest RAT for android with the best features very powerful tool!!
 
 
 
-🌶 For any query @r00tbyt3
+🌶 For any query [@r00tbyt3](http://t.me/r00tbyt3)
 
 
